@@ -1,0 +1,6 @@
+-  Hi, I’m @pekka-ux (Margo)
+-  I’m interested in passing my classes
+-  I’m currently learning front end programming
+-  How to reach me: you cant
+-  Pronouns: he/it
+-  Fun fact: i hate emojies
